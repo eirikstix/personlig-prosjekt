@@ -1,2 +1,0 @@
-# personlig-prosjekt
-
